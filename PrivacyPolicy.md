@@ -3,7 +3,7 @@
 
 Privacy Policy
 
-Last updated: [02/24/2024]
+Last updated: [03/29/2025]
 
 Thank you for visiting EagleGameHub . This Privacy Policy outlines how we handle your information when you visit our website.
 
