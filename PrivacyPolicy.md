@@ -5,7 +5,7 @@ Privacy Policy
 
 Last updated: [02/24/2024]
 
-Thank you for visiting [Your Website Name]. This Privacy Policy outlines how we handle your information when you visit our website.
+Thank you for visiting EagleGameHub . This Privacy Policy outlines how we handle your information when you visit our website.
 
 Information Collection and Use
 
